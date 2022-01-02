@@ -72,19 +72,25 @@ Truer \
 _ours._
 
 it begins with new language \
-new tools of expression \
-and some madness \
-and some _rage_ \
-and some faith \
-that we can fix a sick system \
+new ways and tools of expression \
+finding a balanced core \
+restoring connection \
+believing until knowing \
+the pieces will fit \
+you begin with _culture_ and _art_ \
+and some _madness_ \
+_rage_ and _faith_ \
+we can fix a sick system \
 **WE HAVE SEEN** \
-software without soul
+software \
+without soul
 
 > TALK TALK TALK TALK \
 > faith without works is **`0xDEAD`**
 
 _**YOU.**_ \
-be **builder**, **will**, and **way.**
+find a seed you like and _grow it_ \
+**be builder, will, and way.**
 
 
 # routine
